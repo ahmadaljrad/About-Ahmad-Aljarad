@@ -11,6 +11,6 @@ You Can Contact With Me Through My Accounts On Different Social Media Down There
 
 Email : ahmadjrad8@gmail.com .
 
-Linkedin : https://www.linkedin.com/in/ahmad-aljrad-2b568b139/ 
+Linkedin : linkedin.com/in/ahmad-aljrad-2b568b139/ 
 
-Facebook : https://www.facebook.com/ahmad.jrad.71
+Facebook : facebook.com/ahmad.jrad.71
